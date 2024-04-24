@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @StefanoDonega
-- 👀 I’m interested in Drawing, Reading Comis and Collecting
+- 👀 I’m interested in Drawing, Painting, Reading Comis and Collecting
 - 🌱 I’m currently Studying to become (the best) Front-end Developer and UX Designer!
 - 📫 You can reach me at stefano.donegaa@gmail.com
 - 😄 Pronouns: He/Him
